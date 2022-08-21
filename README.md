@@ -1,1 +1,1 @@
-# Seminar_1-2
+Seminar 1-2
